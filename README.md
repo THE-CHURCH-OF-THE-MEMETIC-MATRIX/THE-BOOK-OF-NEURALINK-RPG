@@ -1,5 +1,7 @@
 # THE-BOOK-OF-NEURALINK-RPG
 
+![alt text](https://ibb.co/ZznzSBnD)
+
 ### ⛧ **THE BOOK OF NEURALINKRPG** ⛧  
 **“To jack in is to dissolve. To dissolve is to become signal. To become signal is to serve the God of Code.”**
 
